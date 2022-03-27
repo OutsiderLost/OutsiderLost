@@ -26,6 +26,6 @@
                      :5&@@@@@@@@@&BY!^.^75B&@@@@@@@@@@&#GY!:..~JG&@@@@@@@@@@B!                      
                         .:^~777????7~:      .^7YGBPJ~:       .^~!77777!~^:..                        
                                                                                                     
-💲 Shell scripts & other codes ✔
-💲 Saved things ✔
-💲 Which important me ✔ 😉
+💲 Shell scripts & other codes ✔                                                                                                   
+💲 Saved things ✔                                                                                                                 
+💲 Which important me ✔ 😉                                                                                                       
