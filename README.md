@@ -26,4 +26,6 @@ Welcome ! :-)
                      :5&@@@@@@@@@&BY!^.^75B&@@@@@@@@@@&#GY!:..~JG&@@@@@@@@@@B!                      
                         .:^~777????7~:      .^7YGBPJ~:       .^~!77777!~^:..                        
                                                                                                     
-                                                                                                    
+==>  shell scripts
+==>  saved things                                                                                                  
+==> which important me ✔
