@@ -1,4 +1,4 @@
-Welcome ! :-)
+💲 Welcome ! :-)
                                                                                                     
                                                                                                     
                                      :~7JY5555J        :!!!!!~^:.                                   
@@ -26,6 +26,6 @@ Welcome ! :-)
                      :5&@@@@@@@@@&BY!^.^75B&@@@@@@@@@@&#GY!:..~JG&@@@@@@@@@@B!                      
                         .:^~777????7~:      .^7YGBPJ~:       .^~!77777!~^:..                        
                                                                                                     
-==>  shell scripts
-==>  saved things                                                                                                  
-==> which important me ✔
+💲 Shell scripts & other codes ✔
+💲 Saved things ✔
+💲 Which important me ✔ 😉
